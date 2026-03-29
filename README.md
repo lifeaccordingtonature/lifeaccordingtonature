@@ -1,1 +1,1 @@
-<img width="1200" height="600" alt="mmm" src="https://github.com/user-attachments/assets/67e1b725-f31c-4ab1-b5a3-57dff23ad24f" />
+![sorryyana](https://github.com/user-attachments/assets/6860d3fb-b21c-485f-a9c3-e937f923ed95)
